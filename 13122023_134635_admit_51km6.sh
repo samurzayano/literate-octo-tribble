@@ -1,0 +1,1 @@
+In WWII, when allied armies reached the Rhine River the first thing men did was pee in it. This was pretty universal from the lowest private to Winston Churchill (who made a big show of it). Gen. Patton had himself photographed in the act
